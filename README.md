@@ -70,7 +70,3 @@ If you have any questions or suggestions, feel free to reach out to:
 
 - Name: Haseeb Ur Rehman Mughal
 - Email: Haseebmughal546@gmail.com
-
----
-
-Let me know if you need any further adjustments or additional details!
